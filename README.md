@@ -1,2 +1,2 @@
-# my-reel
-I don't don't have a reel lol
+# Im applying for the Technical Support Intern
+So I don't have a movie reel. Which im guessing is meant to be a portfolio for the movie industry?
